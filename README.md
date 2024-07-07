@@ -1,1 +1,0 @@
-# Advocacy Resources Inc.
